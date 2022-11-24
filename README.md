@@ -1,0 +1,2 @@
+# bscitpyq
+BSC IT 1ST SEMESTER QUESTIONS
